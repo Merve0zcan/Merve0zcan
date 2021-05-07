@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Merve0zcan
+- 👀 I’m interested in SEO & Translations
